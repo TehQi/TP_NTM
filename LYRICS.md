@@ -18,3 +18,20 @@ C'est ça que tu veux pour ton fils ? C'est comme ça que tu veux qu'il grandiss
 J'ai pas de conseil à donner, mais si tu veux pas qu'il glisse
 Regarde-le, quand il parle, écoute-le !
 Le laisse pas chercher ailleurs, l'amour qui devrait y avoir dans tes yeux
+
+Que voulais-tu que ton fils apprenne dans la rue ?
+Quelles vertus croyais-tu qu'on y enseigne ?
+T'as pas vu comment ça pue dehors, mais comment ça sent la mort ?
+Quand tu respires ça, mec, t'es comme mort-né
+Tu finis borné à force de tourner en rond
+Ton cerveau te fait défaut, puis fait des bonds
+Et c'est vraiment pas bon quand t'en perds le contrôle
+Quand pour les yeux des autres, tu joues de mieux en mieux ton rôle
+Ton rôle de "caille-ra", juste pour ne pas
+Qu'on te dise : "Voilà tu fais plus partie de la mille-fa d'en bas"
+C'est dingue mais c'est comme ça
+Sache qu'ici-bas, plus qu'ailleurs, la survie est un combat
+A base de coups bas, de coups de ton-bâ
+D'esquives et de "Paw !" de putains de ston-ba
+Laisse pas traîner ton fils si tu veux pas qu'il glisse
+Qu'il te ramène du vice, non laisse pas traîner ton fils
